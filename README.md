@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Johator
 - 👀 I’m interested in learning new things who help me to have betterjobs opportunites 
 - 🌱 I’m currently learning english, laws, mathematics, grammar 
-- 💞️ I’m looking to collaborate on all administrative departaments 
+- 💞️ I’m looking to collaborate with new people and have new friends. I love learn..
 - 📫 How to reach me @johaatv
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: read, listen to music, investing about my carrer. 
